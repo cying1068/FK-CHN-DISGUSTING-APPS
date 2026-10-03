@@ -1,2 +1,8 @@
 # FK-CHN-DISGUSTING-APPS
 FUCK EVERY FKING DISGUSTING APP
+360 ++
+2345 ++
+鲁大师
+Windows系统重装大师
+QQ
+WeiXin(WeChat)
